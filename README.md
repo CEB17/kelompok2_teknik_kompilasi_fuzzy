@@ -1,0 +1,1 @@
+# kelompok2_teknik_kompilasi_fuzzy
